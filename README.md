@@ -1,3 +1,6 @@
+---
+layout:new
+---
 February
 ===================
 [tmrnewfile](/February/tmrnewfile.html)
