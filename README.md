@@ -1,9 +1,7 @@
----
-layout:new
+
 ---
 February
 ===================
-[tmrnewfile](/February/tmrnewfile.html)
 
 So I apologize if this is terrible I'm having a time trying to figure this out. For my passage in Barnes I chose February when she is talking about Saints Days. What interested me was how she adapted this type of writing to make it something relevant to her book. The question I want to pose is what was Saints Days originally and why was it important. 
 
@@ -32,4 +30,14 @@ I used my external source from Harner titled **A Handbook of Dates for Students 
 What it might Mean 
 -------------
 From this internal and external evidence we can conclude that Barnes has used this form of literature to accurately compare Dame Musset to a Saint. Also that she may be poking fun at the traditional views of the church. 
-![How to become a Saint](https://www.youtube.com/watch?v=o5JA1LTWc7M)
+
+
+
+Day 2
+-------------
+For Day 2 I chose to adress the question "Is there any indications for a real saint (such as Saint Musset) that stands for homosexuality?" By consulting the source I chose titled **Manual of the Writings in Middle English (M1825)
+Severs, J. Burke, Albert E. Hartung, and Peter G. Beidler, gen. eds. A Manual of the Writings in Middle English, 1050–1500. 12 vols. New Haven: Connecticut Acad. of Arts and Sciences, 1967– . PR255.M3 016.820′9′001. Vol. 2: Pearl Poet; Wyclyf and His Followers; Translations and Paraphrases of the Bible, and Commentaries; Saints’ Legends; Instructions for Religious. 1970.** I found the answer to be no. While there were a couple promiscuous Saints, there were none that were the patron for homosexuality. 
+
+Another question I chose to adress was "How are other saints appointed (if that is the correct term) to that title compared to the actions of Musset?" For this I found an interesting video that explains it well. 
+
+
