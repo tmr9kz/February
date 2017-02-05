@@ -40,4 +40,4 @@ Severs, J. Burke, Albert E. Hartung, and Peter G. Beidler, gen. eds. A Manual of
 
 Another question I chose to adress was "How are other saints appointed (if that is the correct term) to that title compared to the actions of Musset?" For this I found an interesting video that explains it well. 
 
-
+[![How To Become A Saint](https://img.youtube.com/vi/VID/0.jpg)](https://www.youtube.com/watch?v=o5JA1LTWc7M)
