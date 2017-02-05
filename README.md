@@ -1,7 +1,5 @@
-
----
 February
-===================
+=========
 
 So I apologize if this is terrible I'm having a time trying to figure this out. For my passage in Barnes I chose February when she is talking about Saints Days. What interested me was how she adapted this type of writing to make it something relevant to her book. The question I want to pose is what was Saints Days originally and why was it important. 
 
